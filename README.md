@@ -1,8 +1,8 @@
 # 👨‍💻 David Stamenkovic
 
-**`Back-end Developer`**
+**`Software Developer`**
 
-Experienced Back-end Developer with a demonstrated history of working in the information technology and services industry. Strong professional and a quick learner, who would describe himself as a curious, young man who feels that he can progress the most when he is out of his comfort zone. I am a hardworking individual, responsible and focused on completing my goals.
+Experienced Software Developer with a demonstrated history of working in the information technology and services industry. Strong professional and a quick learner, who would describe himself as a curious, young man who feels that he can progress the most when he is out of his comfort zone. I am a hardworking individual, responsible and focused on completing my goals.
 
 ---
 
